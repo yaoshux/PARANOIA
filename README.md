@@ -10,5 +10,6 @@ I got a broke clock
 Any street murder
 Sitting in a corner
 
-
 separate from the fakes, shakes, makes, nakes
+
+So good I take it from Lao Tzu
